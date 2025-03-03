@@ -1,5 +1,5 @@
 # **MAGIA: DAS POÇÕES MEDIEVAIS À GINÁSTICA PSICOLÓGICA MODERNA**  
-*Por um mago (quase) pós-moderno, cheio de sarcasmo e com sede de conhecimento*  
+*Por um magista (quase) pós-moderno*  
 
 ---
 
