@@ -93,4 +93,4 @@ Fica o convite para continuar estudando, experimentando e questionando. E que a 
 - **Peter J. Carroll** – *Liber Null & Psychonaut*  
 - **Grant Morrison** – (entrevistas e trabalhos sobre Magia do Caos)  
 
-**Boa jornada e bons feitiços!** 🔮  
+**Boa jornada e bons trabalhos!** 🔮  
