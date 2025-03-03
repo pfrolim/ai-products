@@ -86,11 +86,11 @@ Fica o convite para continuar estudando, experimentando e questionando. E que a 
 ---
 
 ### **Referências (para aprofundar a jornada):**  
-- **Aleister Crowley** – *Magick in Theory and Practice*  
-- **Eliphas Lévi** – *Dogma e Ritual da Alta Magia*  
 - **Cornelius Agrippa** – *De Occulta Philosophia*  
-- **Peter J. Carroll** – *Liber Null & Psychonaut*  
+- **Eliphas Lévi** – *Dogma e Ritual da Alta Magia*  
+- **Aleister Crowley** – *Magick in Theory and Practice*  
 - **Dion Fortune** – *The Mystical Qabalah*  
+- **Peter J. Carroll** – *Liber Null & Psychonaut*  
 - **Grant Morrison** – (entrevistas e trabalhos sobre Magia do Caos)  
 
 **Boa jornada e bons feitiços!** 🔮  
